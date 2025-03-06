@@ -5,7 +5,7 @@
 - 📫 How to reach me shelbyofweb3@gmail.com
 - 😄 Pronouns: He, His, above all....I'm HIM
 - ⚡ Fun fact: I'm here for the money but I love the tech
-
+- My Discord Username is (shelbyofweb3)
 <!---
 shelbyofweb3/shelbyofweb3 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
